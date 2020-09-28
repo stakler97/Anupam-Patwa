@@ -1,2 +1,0 @@
-# Anupam-Patwa
-perfect chaser
